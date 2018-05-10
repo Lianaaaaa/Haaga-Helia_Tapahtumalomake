@@ -1,1 +1,0 @@
-# Haaga-Helia_Tapahtumalomake
